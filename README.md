@@ -1,2 +1,2 @@
 # KineraCelest
-Para makapasa
+TuplokTuplok raman kaha
